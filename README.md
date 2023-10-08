@@ -1,6 +1,6 @@
 # Potencia tus ventas al menos un 200%
 
-![Portada de la pagina ventas online](https://ibb.co/QpY1qCQ)
+![Portada de la pagina ventas online]([https://ibb.co/QpY1qCQ](https://www.dropbox.com/scl/fi/b1oad8bsdbwlegt39ega2/Captura-de-pantalla-2023-10-07-164200.png?rlkey=0b22uv21ypprrwep7ed66ugc5&dl=0))
 
 ## Herramientas
 
